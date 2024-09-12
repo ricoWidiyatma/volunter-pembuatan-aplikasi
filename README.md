@@ -6,3 +6,4 @@ silahkan gunakan format berikut.<br>
 
 Berikkut adalah daftar Volunter yang diterima:
 * oon arfiandwi, [oo.or.id](https://oo.or.id).
+* Grico, [Linkedin](https://www.linkedin.com/in/rico/).
